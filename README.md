@@ -1,3 +1,3 @@
 # Moorhouse Insurance
 
-(moorhouseinsurance.github.io)[moorhouseinsurance.github.io]
+Visit us @ [ConstructAQuote.com](https://constructaquote.com)
